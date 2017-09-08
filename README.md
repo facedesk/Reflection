@@ -1,17 +1,3 @@
-# Reflection
-## 7/1/2017
+# End of First Week
+## 9/8/2017
 Contents
-
----
-
-# Reflection
-## 6/30/2017
-Contents
-
----
-
-# Reflection
-## 6/29/2017
-Contents
-
----
